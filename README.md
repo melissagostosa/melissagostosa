@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @melissagostosa
+- 👋 Hi, I’m Melissa
 - 👀 I’m interested in johnny depp
 - 🌱 I’m currently learning johnny depp
 - 💞️ I’m looking to collaborate on johnny depp
